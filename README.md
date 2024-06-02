@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+
+---
+[![](https://visitcount.itsvg.in/api?id=mrinspection&icon=8&color=12)](https://visitcount.itsvg.in)
